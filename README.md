@@ -1,2 +1,0 @@
-# spkp
-sistem aktiviti bahagian
